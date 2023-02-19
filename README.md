@@ -1,1 +1,0 @@
-# Gerelt_od Temuulen 
